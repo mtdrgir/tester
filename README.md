@@ -1,4 +1,10 @@
-# Welcome to your organization's demo respository
-This code repository (or "repo") is designed to demonstrate the best GitHub has to offer with the least amount of noise.
+![image](https://github.com/user-attachments/assets/3bff5a34-ef61-4f22-9b61-2c1c7b9eeca2)# 🚀 Matadorbet Giriş - Şansını Hemen Dene, Büyük Kazançlar Seni Bekliyor! 💸
 
-The repo includes an `index.html` file (so it can render a web page), two GitHub Actions workflows, and a CSS stylesheet dependency.
+<a href="https://cutt.ly/yrwbqI0j" title="Tıkla Siteye Git">
+    <img src="https://matadorbet.info.tr/images/matadorbet-amnlk.png" alt="Matadorbet Güncel Giriş" style="max-width: 100%; border: 2px solid #ddd; border-radius: 10px;">
+</a>
+<a href="https://cutt.ly/yrwbqI0j" title="Matadorbet">
+    <img src="https://matadorbet.info.tr/images/matadorbet-amnlk.png" alt="Matadorbet Bonus Kampanyaları" style="max-width: 100%; border: 2px solid #ddd; margin-top: 15px;">
+</a>
+
+🎰 Matadorbet'e giriş yaparak büyük kazançlar elde et! 🚀 En popüler oyunlar ve fırsatlar seni bekliyor. Hemen katıl, şansını dene! 💸
