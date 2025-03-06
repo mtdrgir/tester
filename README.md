@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/3bff5a34-ef61-4f22-9b61-2c1c7b9eeca2)# 🚀 Matadorbet Giriş - Şansını Hemen Dene, Büyük Kazançlar Seni Bekliyor! 💸
+# 🚀 Matadorbet Giriş - Şansını Hemen Dene, Büyük Kazançlar Seni Bekliyor! 💸
 
 <a href="https://cutt.ly/yrwbqI0j" title="Tıkla Siteye Git">
     <img src="https://matadorbet.info.tr/images/matadorbet-amnlk.png" alt="Matadorbet Güncel Giriş" style="max-width: 100%; border: 2px solid #ddd; border-radius: 10px;">
